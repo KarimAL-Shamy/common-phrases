@@ -1,0 +1,1 @@
+C:/Users/TheCe/AppData/Roaming/espanso/git/0.1.0/README.md
